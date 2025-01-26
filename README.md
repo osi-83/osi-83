@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Osi-83 😁
+## Bem-vindo(a) ao perfil de Osiel 😁
 
  <div>
    <a href="https://github.com/osi-83">
